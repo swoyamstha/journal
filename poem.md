@@ -4,7 +4,7 @@ title: "Fading Darkness"
 ---
 
 # FADING DARKNESS
-*Date: February 4, 2026 
+*Date: February 4, 2026*
 
 As the moments bottled up,<br>
 I gave up the lights,<br>
